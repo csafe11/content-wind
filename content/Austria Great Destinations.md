@@ -21,3 +21,17 @@ Azonban nem mindegy, hogy a gyönyörű erdővel és hegyekkel körülvett tavat
 **Túrázás:** tavasz, ősz
 
 ![Grüner See](/gz-1.jpeg)
+
+#
+
+## Zotter Csokoládégyár
+
+Josef Zotter grazi cukrászmester számára a 90-es években az ismert csokoládé kreációk túl egyszerűek és unalmasak voltak. Így cukrászdája zárása után addig kísérletezett még valami igazán újat nem gyártott. Kézzel merített csokoládéval és addig ki nem próbált ízkombinációkkal kísérletezett. 
+
+A tökmagos marcipánt a kenderes mokka követte és nem sokkal ezután egy önálló csokoládégyár, amellyel a csokoládékutató és ízművész Josef Zotter időközben az élvezet valóságos birodalmát alkotta meg. Mert Zotter kreációiban az inspiráció és a kísérletező kedv mellett magas elvárások is rejlenek: a bio és fair trade elvét éppúgy kompromisszumok nélkül betartja, mint az Európa szerte egyedülálló „bean-to-bar” filozófiát, vagyis, hogy a csokoládégyárban közvetlenül a kakaóbabból gyártják a csokit!
+
+![zotter\_1](/zotter_1.jpg)
+
+A **látogatóközpont** is olyan, amilyennek Zotter urat elképzeljük: **színes, sokoldalú, izgalmas, és lépten-nyomon hihetetlen megoldásokat tartogat,** amire legmerészebb álmaiban sem gondolna egy átlagos csokirajongó. Az üzem mellé ugyanis egy nagyon profi látogatóközpontot is építettek, ami a magunkfajta Gombóc Artúrok számára tényleg maga a Kánaán.
+
+![zotter\_2.jpeg](/zotter_2.jpeg)
