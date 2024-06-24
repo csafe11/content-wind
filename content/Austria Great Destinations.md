@@ -24,6 +24,8 @@ Azonban nem mindegy, hogy a gyönyörű erdővel és hegyekkel körülvett tavat
 
 #
 
+---
+
 ## Zotter Csokoládégyár
 
 Josef Zotter grazi cukrászmester számára a 90-es években az ismert csokoládé kreációk túl egyszerűek és unalmasak voltak. Így cukrászdája zárása után addig kísérletezett még valami igazán újat nem gyártott. Kézzel merített csokoládéval és addig ki nem próbált ízkombinációkkal kísérletezett. 
@@ -35,3 +37,21 @@ A tökmagos marcipánt a kenderes mokka követte és nem sokkal ezután egy ön�
 A **látogatóközpont** is olyan, amilyennek Zotter urat elképzeljük: **színes, sokoldalú, izgalmas, és lépten-nyomon hihetetlen megoldásokat tartogat,** amire legmerészebb álmaiban sem gondolna egy átlagos csokirajongó. Az üzem mellé ugyanis egy nagyon profi látogatóközpontot is építettek, ami a magunkfajta Gombóc Artúrok számára tényleg maga a Kánaán.
 
 ![zotter\_2.jpeg](/zotter_2.jpeg)
+
+---
+
+## Pyramidenkogel
+
+A világ legmagasabb fából épült kilátótornya a Wörthi-tó déli partján húzódó hegyek legmagasabb pontján, a Pyramidenkogel-en áll. A 100 méter magas, extravagáns, csavart formájú torony teraszáról Karintia sokak szerint legcsodásabb kilátása tárul elénk. A toronyba lifttel mehetünk fel, de akár Európa legmagasabb fedett csúszdáján is lecsúszhatunk.
+
+A csavarodott, imbolygónak tűnő spirális toronyba üveg **panorámalifttel** jutunk fel a különböző magasságokban lévő kilátóteraszokra. A 360 fokos **körpanoráma** lélegzetelállítóan pazar, lábunk alatt tekergőzik a hosszúkás alakú, már-már mediterránnak ható, türkizkék vizű **Wörther See**, délre a **Keutschacher See** és a horizontot lezáró **Karavankák** fenséges hegylánca.
+
+Akár regionális ételeket, akár csak egy jó kávét és süteményt, vagy egy frissítő fagylaltot szeretne megkóstolni – ennek csodálatos módja a [GenussWirt am Pyramidenkogel](https://www.genusswirt-pyramidenkogel.at/) vendége .
+
+Franz Mlakar és csapata természetesen karintiai finomságokat kínál, de osztrák és nemzetközi ételeket is, elsősorban helyi alapanyagokból készítve. Az étlapon az évszaknak megfelelő szezonális ételek is szerepelnek, mint például a vad vagy a régió friss spárga.
+
+Szép időben a vendégek a teraszon nem csak az ételeket, hanem a csodálatos kilátást is élvezhetik. És mi több: a kilátón jó 70 méterrel feljebb található „Skybox” bulikra, ünnepségekre, fogadásokra is bérelhető, a GenussWirt konyhájának étkeztetésével.
+
+Közvetlenül a kilátó, így a GenussWirt mellett található egy játszótér, ahol a fiatal látogatók igazán kiengedhetik a gőzt.
+
+![pyramiden\_1.jpg](/pyramiden_1.jpg)
